@@ -4,11 +4,10 @@
 
 🐾┄ ˑ ഒ  ˳    ׁ    ◌  ׁ  ܀    ੭  ֢
 
-<img width="1800" height="720" alt="Untitled119_20251229100928" src="https://github.com/user-attachments/assets/e87c2761-c43d-43c5-8453-0f375092773d" />
-<img width="732" height="706" alt="Untitled122_20251230173243" src="https://github.com/user-attachments/assets/2e811628-4c06-4fc1-b3d7-bdf54fe10677" />
+
+<img width="1800" height="720" alt="Untitled119_20251230180847" src="https://github.com/user-attachments/assets/0eeba5cc-cc73-4718-bb78-6030b1c7055f" />
 
 
-<img width="480" height="480" alt="image" src="https://github.com/user-attachments/assets/6d7aea59-a56d-452d-8190-85f5d3cc322a" />
 
 I𝙽𝚃𝚂:
 ♡ this is fur PT, i'm very C+H!! HEAVILY!! cuddle & hug w/ mew anytime :3 '  ^^ 
@@ -39,6 +38,7 @@ I𝙽𝚃𝚂:
 <img width="99" height="56" alt="IMG_0435" src="https://github.com/user-attachments/assets/88d52cd8-82bf-4a84-8dbf-91c70c4ad9e6" />
 
 ![IMG_0436](https://github.com/user-attachments/assets/75ac069e-891e-4619-b1fc-490d4cfab9b0)
+
 ![IMG_0437](https://github.com/user-attachments/assets/55a25ae5-1e33-480b-977b-0535e58de2ff)
 
 ![IMG_0428](https://github.com/user-attachments/assets/98a6ae2f-cceb-44a5-ab1a-77c4d6ad40b8)
